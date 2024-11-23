@@ -1,1 +1,0 @@
-# Meesho-Girly-Finds
